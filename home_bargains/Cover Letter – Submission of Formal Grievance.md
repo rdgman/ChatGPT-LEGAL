@@ -1,6 +1,6 @@
 # Cover Letter – Submission of Formal Grievance
 
-**To:** "KRISTINE.TOMASE@homebargains.co.uk" <KRISTINE.TOMASE@homebargains.co.uk>
+**To:** KRISTINE.TOMASE@homebargains.co.uk
 **From:** Michael Tint, Retail Assistant – Home Bargains Bracknell
 **Date:** 16/11/2025
 
