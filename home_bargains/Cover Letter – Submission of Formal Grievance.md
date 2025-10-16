@@ -41,9 +41,13 @@ Retail Assistant – Home Bargains Bracknell
 # Formal Grievance – Harassment, Intimidation, Health Neglect & Breach of Equality and Company Policy
 
 **Employee:** Michael Tint
+
 **Position:** Retail Assistant
+
 **Workplace:** Home Bargains – Bracknell
+
 **Period Covered:** September 2024 – October 2025
+
 **Date Submitted:** 16/11/2025
 
 Private and confidential and without prejudice
