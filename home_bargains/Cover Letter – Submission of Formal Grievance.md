@@ -1,19 +1,14 @@
-HB grievance 
-
-Michael Tint
-​You​
-​You​
 # Cover Letter – Submission of Formal Grievance
 
-**To:** Store Management / HR Department
+**To:** "KRISTINE.TOMASE@homebargains.co.uk" <KRISTINE.TOMASE@homebargains.co.uk>
 **From:** Michael Tint, Retail Assistant – Home Bargains Bracknell
 **Date:** 16/11/2025
 
-⸻
+Private and confidential and without prejudice
 
-**Subject:** Request for Investigation and Resolution of Workplace Concerns
+**RE:** Request for Investigation and Resolution of Workplace Concerns
 
-Dear [Manager/HR Name],
+Dear KRISTINE.TOMASE,
 
 I am submitting the attached **Formal Grievance – Harassment, Intimidation, Health Neglect & Breach of Equality and Company Policy** for your review and investigation.
 
@@ -51,6 +46,8 @@ Retail Assistant – Home Bargains Bracknell
 **Workplace:** Home Bargains – Bracknell
 **Period Covered:** September 2024 – October 2025
 **Date Submitted:** 16/11/2025
+
+Private and confidential and without prejudice
 
 ⸻
 
@@ -250,27 +247,3 @@ This email, including any attachments, is confidential and intended solely for t
 
 Please be advised that any legal or employment-related communications in this email, or any subsequent correspondence, are considered “Without Prejudice” and should not be disclosed or acted upon by unintended recipients.
 
-—------------------------------------—
-Michael Tint   E: mtint@outlook.com  M: 07787 361 371
-
-On 16 Oct 2025, at 00:27, Michael Tint <mtint@outlook.com> wrote:
-
-﻿
-
-
-
-Yours sincerely,
-
-Michael Tint
-
-This email, including any attachments, is confidential and intended solely for the use of the recipient(s) listed above. If you have received this email in error, please notify the sender immediately and delete it from your system. Any unauthorized review, disclosure, copying, distribution, or reliance on its content is strictly prohibited.
-
-Please be advised that any legal or employment-related communications in this email, or any subsequent correspondence, are considered “Without Prejudice” and should not be disclosed or acted upon by unintended recipients.
-
-—------------------------------------—
-Michael Tint   E: mtint@outlook.com  M: 07787 361 371
-<Cover Letter – Submission of Formal Grievance.pdf>
-
-You
-Thu 2025-10-16 00:28
-Yours sincerely, Michael Tint This email, including any attachments, is confidential and intended solely for the use of the recipient(s) listed above. If you have received this email in error, please notify the sender immediately and delete it from your system.
