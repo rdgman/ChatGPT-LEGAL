@@ -7,8 +7,6 @@
 
 Private and confidential and without prejudice
 
-**RE:** Request for Investigation and Resolution of Workplace Concerns
-
 Dear KRISTINE.TOMASE,
 
 I am submitting the attached **Formal Grievance – Harassment, Intimidation, Health Neglect & Breach of Equality and Company Policy** for your review and investigation.
